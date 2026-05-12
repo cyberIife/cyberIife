@@ -9,6 +9,5 @@
 [ata](https://angelicghoul.atabook.org) ᯓ
 [moreinfo](https://haimiinterests.straw.page)
 
-connor irl !! i lob hank >_<
 
 </div>
