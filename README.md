@@ -6,7 +6,9 @@
 
 [rentry](https://rentry.co/connorbot) ᯓ
 [straw](https://connorbot.straw.page) ᯓ 
-[ata](https://angelicghoul.atabook.org)
+[ata](https://angelicghoul.atabook.org) ᯓ
+[moreinfo](https://haimiinterests.straw.page)
 
 connor irl !! i lob hank >_<
+
 </div>
