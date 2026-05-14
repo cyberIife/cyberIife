@@ -7,9 +7,9 @@
 
 
 
-[rentry](https://rentry.co/connorbot)
-[straw](https://connorbot.straw.page)
-[ata](https://angelicghoul.atabook.org)
+[rentry](https://rentry.co/connorbot) ៸៸៸
+[straw](https://connorbot.straw.page) ៸៸៸
+[ata](https://angelicghoul.atabook.org) ៸៸៸
 [moreinfo](https://haimiinterests.straw.page)
 
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/7f689d59-77e8-444d-841a-25ae2665588b" />
