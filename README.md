@@ -8,10 +8,10 @@ $\color{#7858F8}{\textsf{" So give me just one more chance, one more glance . . 
 
 $\color{#7858F8}{\textsf{" And I will make of you another believer. " }}$
 
-[ʳᵉⁿᵗʳʸ](https://rentry.co/connorbot) $\color{#7858F8}{\textsf{៸៸៸ }}$
+[rentry](https://rentry.co/connorbot) $\color{#7858F8}{\textsf{៸៸៸ }}$
 [straw](https://connorbot.straw.page) $\color{#7858F8}{\textsf{៸៸៸ }}$
 [ata](https://angelicghoul.atabook.org) $\color{#7858F8}{\textsf{៸៸៸ }}$
-[more](https://haimiinterests.straw.page)
+[xtra](https://haimiinterests.straw.page)
 
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/7f689d59-77e8-444d-841a-25ae2665588b" />
 
