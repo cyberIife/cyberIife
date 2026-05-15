@@ -8,6 +8,12 @@ $\color{#7858F8}{\textsf{" So give me just one more chance, one more glance . . 
 
 $\color{#7858F8}{\textsf{" And I will make of you another believer. " }}$
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yhwv3m7xnfp7x5dzdirdf4k5py&cover_image=true&theme=natemoo-re&show_offline=false&background_color=c17cfe&interchange=false&profanity=false&bar_color=c17cfe&bar_color_cover=false">
+  </a>
+</p>
+
 [rentry](https://rentry.co/connorbot) $\color{#7858F8}{\textsf{៸៸៸ }}$
 [straw](https://connorbot.straw.page) $\color{#7858F8}{\textsf{៸៸៸ }}$
 [ata](https://angelicghoul.atabook.org) $\color{#7858F8}{\textsf{៸៸៸ }}$
