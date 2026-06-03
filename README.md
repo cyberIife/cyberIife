@@ -6,7 +6,7 @@ $\color{#ffffff}{\textsf{ i see who you truly are }}$
 <img width="735" height="650" alt="image" src="https://github.com/user-attachments/assets/9181f3cc-c258-4327-933f-33452c537166" />
 
 
-[ata](angelicghoul.atabook.org)
+[ata](https://angelicghoul.atabook.org)
 [byi](https://ruesinformantoon.straw.page)
 
 </div>
