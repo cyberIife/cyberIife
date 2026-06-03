@@ -7,6 +7,6 @@ $\color{#ffffff}{\textsf{ i see who you truly are }}$
 
 
 [ata](https://angelicghoul.atabook.org)
-[byi](https://ruesinformantoon.straw.page)
+[byi](https://rentry.co/ruesbfyi)
 
 </div>
