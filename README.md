@@ -1,7 +1,7 @@
 <div align="center">
 
 
-$\color{#7858F8}{\textsf{" wip }}$
+$\color{#ffffff}{\textsf{ such a beautiful life built on lies }}$
 
 
 
