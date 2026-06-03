@@ -1,7 +1,7 @@
 <div align="center">
 
 
-$\color{#ffffff}{\textsf{ such a beautiful life built on lies }}$
+$\color{#ffffff}{\textsf{ i see who you truly are }}$
 
 <img width="735" height="650" alt="image" src="https://github.com/user-attachments/assets/9181f3cc-c258-4327-933f-33452c537166" />
 
