@@ -11,7 +11,9 @@ $\color{#FEDBE1}{\textsf{ michael de santa yume ⠀⠀ns }}$
 
 $\color{#FEDBE1}{\textsf{ mikey's ⠀⠀kit }}$
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a5187860-92c1-4d24-b34a-e18e097a01fa" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/13189bff-3544-4c2a-95a6-b23eafa61350" />
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/87f29ab7-eb81-4781-98d5-82cc06017222" />
 
 
 [ata](https://angelicghoul.atabook.org) $\color{#FEDBE1}{\textsf{ Ი𐑼 }}$
