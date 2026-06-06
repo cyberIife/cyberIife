@@ -20,7 +20,7 @@ $\color{#FEDBE1}{\textsf{ mikey's ⠀⠀kit }}$
 
 
 [ata](https://angelicghoul.atabook.org) $\color{#FEDBE1}{\textsf{ Ი𐑼 }}$
-[byi](https://rentry.co/ruesbfyi) $\color{#FEDBE1}{\textsf{ Ი𐑼 }}$
+wip $\color{#FEDBE1}{\textsf{ Ი𐑼 }}$
 [spotify](https://open.spotify.com/user/31yhwv3m7xnfp7x5dzdirdf4k5py?si=t_5vIge6S5eqBMlPYXQ2Pg) $\color{#FEDBE1}{\textsf{ Ი𐑼 }}$
 [rentry](https://rentry.co/lovehatefuck)
 
