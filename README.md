@@ -5,6 +5,9 @@
 
 $\color{#FEDBE1}{\textsf{ michael de santa yume ⠀⠀ns }}$
 
+$\color{#FEDBE1}{\textsf{ Ი𐑼 }}$
+
+$\color{#FEDBE1}{\textsf{ lesbian ⠀⠀aroace }}$
 
 <img width="736" height="621" alt="image" src="https://github.com/user-attachments/assets/3a903e6f-3bf0-43ee-a173-2c583792f18b" />
 
