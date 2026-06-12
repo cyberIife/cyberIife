@@ -23,6 +23,5 @@ $\color{#14959E}{\textsf{ mikey's ⠀⠀kit }}$
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/932e9fda-1b84-46b7-a7f0-653e784458ba" />
 
-<img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/8d95156b-f2b7-48c2-bd07-0ffc303f25d3" />
 
 </div>
