@@ -9,6 +9,9 @@ $\color{#14959E}{\textsf{ Ი𐑼 }}$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&weight=300&size=17&pause=1000&color=14959E&center=true&vCenter=true&width=435&lines=hate+that+i+made+you+love+me)](https://git.io/typing-svg)
 
+<img width="540" height="309" alt="image" src="https://github.com/user-attachments/assets/87e345b6-11c0-4ad3-8399-ecd997841fcb" />
+
+
 $\color{#14959E}{\textsf{ mikey's ⠀⠀kit }}$
 
 
