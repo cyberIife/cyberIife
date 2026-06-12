@@ -1,25 +1,17 @@
 <div align="center">
 
-<img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/8d95156b-f2b7-48c2-bd07-0ffc303f25d3" />
 
 
-$\color{#14959E}{\textsf{ michael de santa yume ⠀⠀ns }}$
+$\color{#fffff}{\textsf{ michael de santa yume ⠀⠀ns }}$
 
-$\color{#14959E}{\textsf{ Ი𐑼 }}$
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&weight=300&size=17&pause=1000&color=14959E&center=true&vCenter=true&width=435&lines=hate+that+i+made+you+love+me)](https://git.io/typing-svg)
-
-<img width="540" height="309" alt="image" src="https://github.com/user-attachments/assets/87e345b6-11c0-4ad3-8399-ecd997841fcb" />
-
-
-$\color{#14959E}{\textsf{ mikey's ⠀⠀kit }}$
+<img width="540" height="334" alt="image" src="https://github.com/user-attachments/assets/2ec26798-9040-49b0-a8e0-a7167c0f1c35" />
 
 
 [@fan-town](https://github.com/fan-town)
 
-[ata](https://angelicghoul.atabook.org) $\color{#14959E}{\textsf{ Ი𐑼 }}$
-[byi](https://rentry.co/bottleofwine) $\color{#14959E}{\textsf{ Ი𐑼 }}$
-[spotify](https://open.spotify.com/user/31yhwv3m7xnfp7x5dzdirdf4k5py?si=t_5vIge6S5eqBMlPYXQ2Pg)  $\color{#14959E}{\textsf{ Ი𐑼 }}$
+[ata](https://angelicghoul.atabook.org)
+[byi](https://rentry.co/bottleofwine)
+[spotify](https://open.spotify.com/user/31yhwv3m7xnfp7x5dzdirdf4k5py?si=t_5vIge6S5eqBMlPYXQ2Pg)
 [rentry](https://rentry.co/connorbot)
 
 
