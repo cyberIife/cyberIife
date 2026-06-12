@@ -16,7 +16,6 @@ $\color{#fffff}{\textsf{ connors n1 fan }}$
 
 [ata](https://angelicghoul.atabook.org)
 [byi](https://rentry.co/bottleofwine)
-[spotify](https://open.spotify.com/user/31yhwv3m7xnfp7x5dzdirdf4k5py?si=t_5vIge6S5eqBMlPYXQ2Pg)
 [rentry](https://rentry.co/connorbot)
 
 
