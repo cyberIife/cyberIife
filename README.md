@@ -7,8 +7,6 @@ $\color{#14959E}{\textsf{ michael de santa yume ⠀⠀ns }}$
 
 $\color{#14959E}{\textsf{ Ი𐑼 }}$
 
-$\color{#14959E}{\textsf{ lesbian ⠀⠀aroace }}$
-
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/932e9fda-1b84-46b7-a7f0-653e784458ba" />
 
 $\color{#14959E}{\textsf{ mikey's ⠀⠀kit }}$
