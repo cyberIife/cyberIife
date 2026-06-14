@@ -1,22 +1,23 @@
 <div align="center">
 
+<img width="934" height="267" alt="image" src="https://github.com/user-attachments/assets/c59f37da-8315-4656-a0c9-e63f6471eaf4" />
 
 
-$\color{#fffff}{\textsf{ michael de santa yume ⠀⠀ns }}$
+$\color{#EFEEEE}{\textsf{ ℳichael }}$ $\color{#47B1E9}{\textsf{de santa }}$ $\color{#2D2D2D}{\textsf{yume }}$ 
 
-![Static Badge](https://img.shields.io/badge/androids-340-59BDFF)
+![Static Badge](https://img.shields.io/badge/androids-340-47B1E9)
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/1620d627-bc55-4b20-b747-cf83d2cf51c8" />
 
 
 
-
-<img width="540" height="334" alt="image" src="https://github.com/user-attachments/assets/2ec26798-9040-49b0-a8e0-a7167c0f1c35" />
-
-$\color{#fffff}{\textsf{ c+h encouraged when alone}}$
+$\color{#EFEEEE}{\textsf{ c+h enc }}$ $\color{#47B1E9}{\textsf{when }}$ $\color{#2D2D2D}{\textsf{alone }}$
 
 [ata](https://angelicghoul.atabook.org)
 [byi](https://rentry.co/bottleofwine)
 [rentry](https://rentry.co/connorbot)
 
+<img width="934" height="267" alt="image" src="https://github.com/user-attachments/assets/f5ba639e-d08a-48ea-a02f-5c00056e6406" />
 
 
 
