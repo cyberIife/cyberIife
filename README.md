@@ -11,8 +11,9 @@ $\color{#fffff}{\textsf{ michael de santa yume ⠀⠀ns }}$
 
 <img width="540" height="334" alt="image" src="https://github.com/user-attachments/assets/2ec26798-9040-49b0-a8e0-a7167c0f1c35" />
 
-$\color{#fffff}{\textsf{ connors n1 fan }}$
-[@fan-town](https://github.com/fan-town)
+$\color{#fffff}{\textsf{ the connor of pt!}}$
+[@titletown](https://github.com/title-town)
+[@fantown](https://github.com/fan-town)
 
 [ata](https://angelicghoul.atabook.org)
 [byi](https://rentry.co/bottleofwine)
