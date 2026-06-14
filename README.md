@@ -19,9 +19,9 @@ $\color{#EFEEEE}{\textsf{ c+h enc }}$ $\color{#47B1E9}{\textsf{when }}$ $\color{
 <img width="1000" height="10" alt="image" src="https://github.com/user-attachments/assets/626fe730-4584-4160-965b-14fbffe3aa7c" />
 
 
-[ata](https://angelicghoul.atabook.org)
-[byi](https://rentry.co/bottleofwine)
-[rentry](https://rentry.co/connorbot)
+[𝖺𝗍𝖺](https://angelicghoul.atabook.org)
+[𝖻𝗒𝗂](https://rentry.co/bottleofwine)
+[𝗋𝖾𝗇𝗍𝗋𝗒](https://rentry.co/connorbot)
 
 <img width="934" height="267" alt="image" src="https://github.com/user-attachments/assets/f5ba639e-d08a-48ea-a02f-5c00056e6406" />
 
