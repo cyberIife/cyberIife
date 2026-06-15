@@ -26,6 +26,7 @@ $\color{#EFEEEE}{\textsf{ ᥴ+һ ᥱᥒᥴ }}$ $\color{#47B1E9}{\textsf{ᥕһᥱ
 [ᥲ𝗍ᥲ](https://angelicghoul.atabook.org)
 [ᑲᥡі](https://rentry.co/bottleofwine)
 [rᥱᥒ𝗍rᥡ](https://rentry.co/connorbot)
+[ᥣᥙ᥎mᥲіᥣ](https://rentry.co/isforfriendship)
 
 <img width="934" height="267" alt="image" src="https://github.com/user-attachments/assets/f5ba639e-d08a-48ea-a02f-5c00056e6406" />
 
