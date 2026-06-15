@@ -10,6 +10,8 @@ $\color{#EFEEEE}{\textsf{ mіᥴһᥲᥱᥣ ‧₊˚ ⋅ }}$ $\color{#47B1E9}{\t
 
 ![Static Badge](https://img.shields.io/badge/androids-340-47B1E9)
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&pause=1000&color=47B1E9&center=true&width=435&lines=r%E1%A5%B1%E1%91%B2%E1%A5%86%E1%A5%86%F0%9D%97%8D+%E1%A5%B2s+s%E1%A5%86%E1%A5%86%E1%A5%92+%E1%A5%B2s+%D1%96+%E1%A5%B2m+%E1%A5%B2%E1%91%B2%E1%A5%A3%E1%A5%B1)](https://git.io/typing-svg)
+
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/1620d627-bc55-4b20-b747-cf83d2cf51c8" />
 
 
