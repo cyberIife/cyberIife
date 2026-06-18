@@ -20,7 +20,7 @@ $\color{#EFEEEE}{\textsf{ mіᥴһᥲᥱᥣ ‧₊˚ ⋅ }}$ $\color{#47B1E9}{\t
 
 $\color{#EFEEEE}{\textsf{ ᥴ+һ ᥱᥒᥴ }}$ $\color{#47B1E9}{\textsf{ᥕһᥱᥒ }}$ $\color{#2D2D2D}{\textsf{ᥲᥣ᥆ᥒᥱ ‧₊˚ ⋅ }}$
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yhwv3m7xnfp7x5dzdirdf4k5py&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 
 <img width="1000" height="10" alt="image" src="https://github.com/user-attachments/assets/626fe730-4584-4160-965b-14fbffe3aa7c" />
 
