@@ -5,8 +5,6 @@
 
 $\color{#EFEEEE}{\textsf{ mіᥴһᥲᥱᥣ ‧₊˚ ⋅ }}$ $\color{#47B1E9}{\textsf{ძᥱ sᥲᥒ𝗍ᥲ }}$ $\color{#2D2D2D}{\textsf{ᥡᥙmᥱ }}$ 
 
-[matching](https://rentry.co/joshbrush)
-
 <img width="1000" height="10" alt="image" src="https://github.com/user-attachments/assets/cd48b81e-a92d-40c1-89b7-bd77fb23fa5d" />
 
 
