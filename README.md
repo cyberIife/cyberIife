@@ -2,6 +2,9 @@
 
 <img width="934" height="267" alt="image" src="https://github.com/user-attachments/assets/c59f37da-8315-4656-a0c9-e63f6471eaf4" />
 
+<img width="100" height="58" alt="image" src="https://github.com/user-attachments/assets/d3458b49-4cf6-45a6-881d-74033de66e60" />
+
+
 
 $\color{#EFEEEE}{\textsf{ mіᥴһᥲᥱᥣ ‧₊˚ ⋅ }}$ $\color{#47B1E9}{\textsf{ძᥱ sᥲᥒ𝗍ᥲ }}$ $\color{#2D2D2D}{\textsf{ᥡᥙmᥱ }}$ 
 
