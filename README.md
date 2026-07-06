@@ -3,7 +3,7 @@
 
 <img width="1064" height="112" alt="image" src="https://github.com/user-attachments/assets/92ab2a7a-8c97-4338-95dc-e8b4fe35b48a" />
 
-◜ ͡ ◟　　𓏼　 
+◜ ͡ ◟　　𓏼　 internetgirl
 
 ![Static Badge](https://img.shields.io/badge/androids-340-C4CBAD)
 
